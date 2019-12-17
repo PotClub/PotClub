@@ -1,4 +1,4 @@
-## PotClub
+### PotClub.69.mu
 
 
 
@@ -16,7 +16,7 @@ What we Offer!
 - Smooth KB!
 - Good Anti-Cheat!
 - Smooth connection!
-# and way much more!
+### and way much more!
 
 
 
